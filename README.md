@@ -6,4 +6,6 @@
 <div align="center">　
 <div align="center">⠀ ⠀ ˚ִ<img width="20" height="20" alt="IMG_4037" src="https://github.com/user-attachments/assets/312d27b3-446e-4807-87b3-c9d056766974" />  　[carrd.co](wip)　⠀ ݃  ྀི    ̣ ֹ  ⠀ ᐢ𓈒ᧆ ִ⑅
 <div align="center">⠀ ⠀ ᱖ ྀི  ̣ ֹ　　  ⠀ ˖𓏼 ۫ 　　　  ݂<img width="20" height="20" alt="IMG_3775" src="https://github.com/user-attachments/assets/c8dea524-7ba8-4e4b-a8f9-961e18e9fcf1" />
-<div align="center">　
+<div align="center"><img width="340" height="236" alt="3518055E-8B3E-4794-AFCE-7250A753C195" src="https://github.com/user-attachments/assets/d6a3c2bc-b374-412d-a879-ea687ccf64f4" />
+
+<div align=“center”>ALL OF THIS IS JUST A WIP BTW ⚠️
